@@ -1,1 +1,0 @@
-# Treball-de-Simulacio
